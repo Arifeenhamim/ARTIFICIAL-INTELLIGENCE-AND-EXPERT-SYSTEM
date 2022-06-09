@@ -1,0 +1,2 @@
+# ARTIFICIAL-INTELLIGENCE-AND-EXPERT-SYSTEM
+This my academic course 
